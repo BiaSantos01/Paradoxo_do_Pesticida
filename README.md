@@ -1,0 +1,1 @@
+# Paradoxo_do_Pesticida
